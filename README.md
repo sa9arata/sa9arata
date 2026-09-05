@@ -7,4 +7,6 @@
 
 <img src="ezgif-379c57cd0359e2bf.webp" width="300"><a/>
 
-Spoke or Saps <img src"" width="100"><a/> He 927w1 Achillean
+<div align="center">
+
+Sₚₒₖₑ⠀⠀ ₒᵣ⠀⠀ 𝙎ₐₚₛ ⠀⠀ₕₑ ⠀⠀<img src="ezgif-7ab209f525619434.webp" width="45" align="center"><a/>⠀⠀𝟗𝟐𝟕ʷ¹⠀A𝒸ₕᵢₗₗₑₐₙ⠀⠀𝔻ₑₘᵢₛₑₓᵤₐₗ
