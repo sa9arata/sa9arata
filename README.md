@@ -11,3 +11,7 @@
 
 <div align="center">
  ׅ 𝓢pₒ꯭ₖₑ⠀⠀ ₒᵣ⠀⠀𓈒⠀𝙎ₐթs ⠀⠀ₕ͡ₑ ⠀ׅ⠀ ۫ <img src="ezgif-7ab209f525619434.webp" width="45" align="center"><a/>𓈒⠀𝟗𝟐𝟕ʷ¹⠀𝓐𝒸ₕᵢₗₗₑₐₙ⠀۪⠀𝔻ₑₘᵢₛₑₓᵤₐₗ⠀
+
+⠀
+
+<a href="https://x.com/52an_d52"><img src="Untitled129_0000-08-06_20260905165539.png" width="120"><a/>
