@@ -1,7 +1,7 @@
 <div align="center">
 
-<a href="https://silas.atabook.org"><img src="Untitled129_20260905142914.png" width="100"><a/>⠀⠀⠀
-<a href="https://rentry.co/spokier"><img src="Untitled129_20260905143124.png" width="100"><a/>⠀
+<a href="https://silas.atabook.org"><img src="Untitled129_20260905142914.png" width="120"><a/>⠀⠀⠀
+<a href="https://rentry.co/spokier"><img src="Untitled129_20260905143124.png" width="120"><a/>⠀
 
 <img src="Untitled130_20260905153957.png" height="100"><a/>
 ⠀
