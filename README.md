@@ -1,3 +1,4 @@
-
-<img src="ezgif-224582d1fe68e8b2.png" align="left" width="256" height="100%">
-<img src="ezgif-201c8bc82fcf87f6.png" align="left" width="57" height="100%">**<ins>ℍ</ins><abbr title="e">ᥱ</abbr>** ִ໋࣪<ruby><sub>Hym,</sub><rt>౨ৎ❀༉˚.</rt></ruby> <code>𝙸𝙳𝚜</code> <sup>[1](https://forsaken2024.fandom.com/wiki/Chance)</sup> [2](https://honkai-star-rail.fandom.com/wiki/Aventurine)<img src="ezgif-25b62aa151f22742.png" align="right" width="65" height="100%">
+<img src="ezgif-224582d1fe68e8b2.png" alt="Valentine" align="left" width="256" height="100%">
+<img src="https://file.garden/apH89oByG01IKcZV/ezgif-201c8bc82fcf87f6.png" align="left" width="57" height="100%"><ins>ℍ</ins><abbr title="e">ᥱ</abbr> ִ໋࣪<ruby><sub>Hym,</sub><rt>౨ৎ❀༉˚.</rt></ruby> <code>𝙸𝙳𝚜</code> <sup><a href="https://forsaken2024.fandom.com/wiki/Chance">[1]</a> <a href="https://honkai-star-rail.fandom.com/wiki/Aventurine">[2]</a> <img src="https://file.garden/apH89oByG01IKcZV/ezgif-25b62aa151f22742.png" align="right" width="65" height="100%"> \
+ᥬᩤ<img src="https://file.garden/apH89oByG01IKcZV/ezgif-20313001b0e839ce.gif" width="19" height="100%">⊹˙ 𝒜r𖹭 ִ໋࣪⑅⍶<abbr title="ce">𝐜ᧉ</abbr> ꒱\
+<a href="https://txto.eu.org/Bled"><img src="ezgif-4f0b8b16914cd8cf.png" align="right" alt="Main" width="256" height="100%">
